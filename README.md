@@ -1,2 +1,2 @@
-# Declaration-of-Fiduciary-Covenant
+# Trust
 Texas Declaration of Moral and Fiduciary Covenant
